@@ -4,3 +4,4 @@ From old sci-fi stories to real scientific theories, this zine looks at how we i
 It’s a short, fun way to think about what it might be like to visit the past or the future.
 This keeps the required phrase “time machine” while sounding natural, like something a student would write for a lab assignment.
 Our time machine uses solar energy.  
+This zine looks at what time travel might mean for real life.
